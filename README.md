@@ -1,1 +1,1 @@
-# beagoodgirl.net
+# beagoodgirl
